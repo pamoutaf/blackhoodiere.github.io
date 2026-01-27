@@ -19,7 +19,7 @@ We are also thrilled to announce that tickets to the conference will be given to
     
 *   Where: CORDA CAMPUS, HASSELT
     
-*   Registration link: TBD in December
+*   Registration link: [Form link](https://docs.google.com/forms/d/e/1FAIpQLSe7gmOsIjW5SuX7Dy8JpQ5NHMlcVIJeKuEniDDpXei5P3Uziw/viewform?usp=publish-editor)
     
 *   Fees: The training and food are free; travel and accommodation is the responsibility of the attendees.
     
